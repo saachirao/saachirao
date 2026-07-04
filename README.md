@@ -60,4 +60,4 @@ Currently, I'm strengthening my skills in:
 - 💼 LinkedIn: www.linkedin.com/in/saachi-rao-b8850a340
 ---
 
-⭐ Not Thanks for visiting my GitHub profile. Hello devansh
+⭐ Thanks for visiting my GitHub profile.
